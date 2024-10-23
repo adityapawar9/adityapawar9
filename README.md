@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on clients project<br>👯 I’m looking to collaborate with freelancer<br>🤝 I’m looking for help with getting help to lern new things<br>🌱 I’m currently learning hoasting and about domain<br>💬 Ask me about anything<br>⚡ Fun fact I am Pro
+🔭 I’m currently working on clients project<br>👯 I’m looking to collaborate with freelancer<br>🤝 I’m looking for help with getting help to learn new things<br>🌱 I’m currently learning hoasting and about domain<br>💬 Ask me about anything<br>⚡ Fun fact I am Pro
 
 
 ## 🌐 Socials:
